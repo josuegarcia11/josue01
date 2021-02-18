@@ -3,6 +3,5 @@
 <br><br>
 ### Hobbies
 ### Playing video games
-<br>
 ### Playing baskeball
 
