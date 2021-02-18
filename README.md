@@ -4,5 +4,5 @@
 ### Hobbies:
 **-Playing video game**🎮
 <br>
-**-Playing basketball.**🏀
+**-Playing basketball**🏀
 
